@@ -1,2 +1,2 @@
 # savetheaxolotl
-check out @ally4axolotls for info on drop!
+check out @ally4axolotls on Instagram for info on drop!
